@@ -1,0 +1,1 @@
+# JavaAiProject-to-learn
